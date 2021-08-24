@@ -1,4 +1,4 @@
-### Hi there I'm currently working on Data Science projects👋
+### I'm currently working on Data Science projects 👋
 ### I’m currently working on learning new languages 🌱
 
 
